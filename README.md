@@ -1,7 +1,7 @@
 ### Hello there
 
 
-Other than IT stuff I also do one of these things ( not in that particular order) :
+Other than IT stuff I also do one of these things ( not in that particular order ) :
 
 - 📷 [Not take photos of food](https://ahmcho.com/photos)
 - ✏️ [Write in my blog in my native language](https://ahmcho.com)
