@@ -1,6 +1,5 @@
-### Hello there🧔‍
+### Hello there
 
-Hopefully this does not look lame 😬
 
 Other than IT stuff I also do one of these things ( not in that particular order) :
 
